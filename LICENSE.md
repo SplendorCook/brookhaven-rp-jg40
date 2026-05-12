@@ -1,4 +1,4 @@
-#  
+#  no-ban Script for escape waves for lucky blocks offers the most advanced escape waves for lucky blocks Script, with one-hit kill and unlimited
 
 
 
